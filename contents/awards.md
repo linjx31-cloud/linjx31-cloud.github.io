@@ -1,3 +1,3 @@
-- 校级一等奖学金, 2022.  
+- 国家奖学金 2023.  
 
-- Outstanding Graduation Thesis, XXX University, 2023. 
+- 全国大学生数学建模竞赛 国家一等奖 2024. 
